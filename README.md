@@ -1,0 +1,1 @@
+Hi! My name is Jeana Chapman and I am a sophomore at The University of Tennessee at Chattanooga. My major is Computer Science with a focus in Software Systems and my minor is Creative writing. I live on campus and have a dog named Hazel who lives in the dorm with me. 
